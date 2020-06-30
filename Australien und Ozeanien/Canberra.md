@@ -36,5 +36,5 @@ Tipp 4: Die meisten Museen kosten keinen Eintritt
 
 ## Bild
 
-![Blick über Canberra vom Mount Ainslie]Canberra_01.JPG
+![Blick über Canberra vom Mount Ainslie](canberra_01.jpg)
 
