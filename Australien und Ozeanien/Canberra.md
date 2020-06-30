@@ -29,10 +29,10 @@ Nachdem sich die beiden größten Stadte Australiens nicht einigen konnte, wer H
 
 ## Tipps
 
-Tipp 1: Einen sehr guten Überblick über die Stadt bekommt man vom Mount Ainslie.
-Tipp 2: Das "Old Parliament House" ist ein sehenswertes Demokratie-Museum.
-Tipp 3: Vom Dach des "New Parliament House" hat man auch einen guten Blick über die Stadt
-Tipp 4: Die meisten Museen kosten keinen Eintritt
+1. Einen sehr guten Überblick über die Stadt bekommt man vom Mount Ainslie.
+2. Das "Old Parliament House" ist ein sehenswertes Demokratie-Museum.
+3. Vom Dach des "New Parliament House" hat man auch einen guten Blick über die Stadt
+4. Die meisten Museen kosten keinen Eintritt
 
 ## Bild
 
