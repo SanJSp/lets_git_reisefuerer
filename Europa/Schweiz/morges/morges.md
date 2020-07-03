@@ -21,7 +21,7 @@ Nach dem Zusammenbruch des Ancien régime gehörte die Stadt von 1798 bis 1803 w
 ## Sehenswürdigkeiten
 
 Parc de l'Indépendance - ideal für romantische längere Spaziergänge.  
-![](/Europa/Schweiz/morges/park.png)  
+![](/Europa/Schweiz/morges/park.jpg)  
 
 ![Sehenswürdigkeiten der Region](https://www.morges-tourisme.ch/de/GP1824/die-unumgaenglichen-sehenswuerdigkeiten)
 
