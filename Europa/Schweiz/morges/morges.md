@@ -18,8 +18,6 @@ Mit der Eroberung der Waadt durch Bern im Jahr 1536 wurde Morges Hauptort und da
 
 Nach dem Zusammenbruch des Ancien régime gehörte die Stadt von 1798 bis 1803 während der Helvetik zum Kanton Léman, der anschliessend mit der Inkraftsetzung der Mediationsverfassung im Kanton Waadt aufging. 1798 wurde die Stadt Hauptort des Bezirks Morges. Ein weiterer Aufschwung erfolgte im Lauf des 19. Jahrhunderts mit dem Anschluss an das schweizerische Eisenbahnnetz.
 
-Am 29. April 1961 wurde in Morges das Manifest von Morges (engl. Morges Manifesto) unterzeichnet, das zur Gründung des WWF führte.[5] Auch das erste Büro des WWF wurde in Morges eröffnet (11. September 1961).[6]
-
 ## Sehenswürdigkeiten
 
 Parc de l'Indépendance - ideal für romantische längere Spaziergänge.  
